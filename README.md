@@ -1,0 +1,12 @@
+- 👋 bonjour,je m'appelle  @ThiamOusmane1!
+- Après plus de dix ans dans le monde du batiment en tant qu' Echaffaudeur,
+- et a la suite d'un accident de travail,j'ai décidé de me reconvertir dans le monde du développement web!
+- Une toute nouvelle aventure qui je le pense durera longtemps...
+- 👀 Actuellement étudiant auprès d'une école en ligne (studi),
+- positioné sur un graduate dévelloppeur full stack web,web mobile!
+- j'apprend petit à petit les bases du métier.
+- jespère approfondir mes connaissances et ma pratque afin de pouvoir creer et faire partager!
+- La motivation face à ce défit sera et restera inébranlable!!
+- Les échecs,les doutes et les erreurs ne feront que renforcer mon expérience(en tant que ancien échafaudeur ça me connait!);
+- Tous ça pour vous dire que je suis ouvert à tous partage,collaboration etc...
+  
