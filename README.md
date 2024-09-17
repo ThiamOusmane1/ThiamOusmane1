@@ -1,5 +1,5 @@
 - 👋 bonjour,je m'appelle  @ThiamOusmane1!
-- Après plus de dix ans dans le monde du batiment en tant qu' Echaffaudeur,
+- Après plus de dix ans dans le monde du batiment en tant qu' Echafaudeur,
 - et a la suite d'un accident de travail,j'ai décidé de me reconvertir dans le monde du développement web!
 - Une toute nouvelle aventure qui je le pense durera longtemps...
 - 👀 Actuellement étudiant auprès d'une école en ligne (studi),
